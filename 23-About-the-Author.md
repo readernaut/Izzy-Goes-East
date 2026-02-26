@@ -1,0 +1,3 @@
+# About the Author
+
+**Maricel "Mari" Santos-Crawford** is a British-Filipina writer and graphic designer living in London with her husband and two daughters. She grew up in the San Francisco Bay Area after emigrating from Quezon City, Philippines, at age seven. This is her first novel. She wrote it because she wished a book like this had existed when she was eleven, and because her daughters deserve to see themselves in stories. When she's not writing, she can be found cooking her mother's recipes (never quite the same), planning the next trip to Manila, and explaining to British people that yes, that IS how you pronounce "Tagalog."
