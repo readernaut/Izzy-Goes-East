@@ -41,7 +41,7 @@ IS.
 
 INCREDIBLE.
 
-Lily was not lying about being excited.
+Wendy was not lying about being excited.
 
 It's like a giant outdoor food festival every night. Hundreds of stalls. Every kind of food you can imagine. Games. Souvenirs. Clothes. Everything.
 
@@ -52,13 +52,13 @@ I tried:
 - Fried chicken on a stick
 - Shaved ice with toppings
 
-Sofia ate an entire sausage that was as big as her forearm.
+Tilly ate an entire sausage that was as big as her forearm.
 
 Dad tried the stinky tofu and his face was PRICELESS.
 
 Mum bought a bunch of snacks to bring back to London.
 
-Lily led us around like she owned the place. She knew which stalls were best, which ones to skip, where to find the good bubble tea (apparently not all bubble tea is equal, there are tiers).
+Wendy led us around like she owned the place. She knew which stalls were best, which ones to skip, where to find the good bubble tea (apparently not all bubble tea is equal, there are tiers).
 
 "You know a lot about this," I said.
 
@@ -68,7 +68,7 @@ Lily led us around like she owned the place. She knew which stalls were best, wh
 
 ### Walking Home, 10:00 PM
 
-Lily and I walked behind the adults on the way home.
+Wendy and I walked behind the adults on the way home.
 
 "Do you like living here?" I asked.
 

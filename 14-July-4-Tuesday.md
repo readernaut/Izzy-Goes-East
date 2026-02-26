@@ -7,7 +7,7 @@ Today was our "free day," meaning no plans, just wander.
 
 We went to a park and just sat. Fed some koi fish. Watched old men playing chess (or whatever the Japanese chess equivalent is, called "shogi" I think).
 
-Sofia fell asleep on a bench. She's been running herself ragged.
+Tilly fell asleep on a bench. She's been running herself ragged.
 
 Mum sat next to me.
 

@@ -31,25 +31,25 @@ Mum was quiet.
 
 ### Night, Auntie Grace's Apartment
 
-**Text conversation with Maya:**
+**Text conversation with Jessa:**
 
 **Me:** [photo of Jiufen lanterns]
-**Maya:** WHAT
-**Maya:** that's STUNNING
-**Maya:** where is that
+**Jessa:** WHAT
+**Jessa:** that's STUNNING
+**Jessa:** where is that
 **Me:** Taiwan! A place called Jiufen
-**Maya:** adding it to my list immediately
+**Jessa:** adding it to my list immediately
 **Me:** definitely should
-**Maya:** how's it going there?
+**Jessa:** how's it going there?
 **Me:** really good. different from Manila and Japan both. another kind of place.
-**Maya:** you're becoming a world traveler
+**Jessa:** you're becoming a world traveler
 **Me:** lol I'm just on a family trip
-**Maya:** same thing really
-**Maya:** miss you though. house is boring without you here.
+**Jessa:** same thing really
+**Jessa:** miss you though. house is boring without you here.
 **Me:** miss you too. back in Manila in a few days!
-**Maya:** wait you're coming back through Manila??
+**Jessa:** wait you're coming back through Manila??
 **Me:** yeah we have a layover and we're staying one more night to see everyone again
-**Maya:** YAYYYY
+**Jessa:** YAYYYY
 
 I didn't know about the layover thing. Mum just told me at dinner. We're spending one more night in Manila on the way back to London.
 

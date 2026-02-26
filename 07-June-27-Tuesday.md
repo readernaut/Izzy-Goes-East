@@ -29,34 +29,34 @@ I didn't know what to say.
 
 ---
 
-### Maya's Room, 12:00 PM
+### Jessa's Room, 12:00 PM
 
-Maya has been teaching me words.
+Jessa has been teaching me words.
 
 We sat on her bed (she shares a room with Marco, who was off playing somewhere) and she wrote them down in my journal:
 
-**Tagalog Lesson #1 with Maya:**
+**Tagalog Lesson #1 with Jessa:**
 
 - Salamat = thank you
 - Oo = yes
 - Hindi = no
 - Maganda = beautiful
 - Masarap = delicious
-- Gutom = hungry (important, Maya says, for asking for food)
+- Gutom = hungry (important, Jessa says, for asking for food)
 - Mahal = love (but also expensive? the same word? confusing)
 - Pamilya = family
 
 "That's weird," I said about mahal. "Love and expensive are the same word?"
 
-Maya grinned. "Love is expensive."
+Jessa grinned. "Love is expensive."
 
 "That's deep."
 
 "I'm a deep person."
 
-I tried saying them out loud and Maya corrected my pronunciation. Tagalog has sounds that don't exist in English, or at least not the same way, and I kept getting them wrong.
+I tried saying them out loud and Jessa corrected my pronunciation. Tagalog has sounds that don't exist in English, or at least not the same way, and I kept getting them wrong.
 
-"Your Tagalog sounds like Tita Mari's," Maya said.
+"Your Tagalog sounds like Tita Mari's," Jessa said.
 
 "Is that bad?"
 
@@ -78,7 +78,7 @@ Everyone's heads turned like I'd announced I was running for president.
 
 "O!" Tita Gemma said. "Nag-Tagalog!"
 
-"She knows words now," Maya said proudly, like she'd created a science project.
+"She knows words now," Jessa said proudly, like she'd created a science project.
 
 Lola smiled so big I thought her face might crack.
 

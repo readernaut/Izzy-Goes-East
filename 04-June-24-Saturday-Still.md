@@ -3,13 +3,13 @@
 
 I slept for like four hours and woke up completely confused about where I was.
 
-For a second I thought I was in my room in Ealing and then I saw the fan on the ceiling and the unfamiliar walls and Sofia asleep next to me with her mouth open and I remembered: oh right, I'm on the other side of the world.
+For a second I thought I was in my room in Ealing and then I saw the fan on the ceiling and the unfamiliar walls and Tilly asleep next to me with her mouth open and I remembered: oh right, I'm on the other side of the world.
 
 Mum is downstairs with Lola and the aunts. I can hear them talking and laughing. She sounds so DIFFERENT when she speaks Tagalog. Faster, louder, more animated. Like a different version of herself.
 
 Dad is reading a book on the porch. He gave me a thumbs up when I came down.
 
-Maya invited me to watch TV with her and Marco. They were watching this show called "Wansapanataym" which is apparently a Filipino fantasy show and I couldn't understand any of it but Maya kept translating the important parts.
+Jessa invited me to watch TV with her and Marco. They were watching this show called "Wansapanataym" which is apparently a Filipino fantasy show and I couldn't understand any of it but Jessa kept translating the important parts.
 
 "She's a fairy. He doesn't know. Now the villain is coming. He's her father! Plot twist!"
 
@@ -27,7 +27,7 @@ Like maybe I'm not as invisible here as I thought.
 
 Filipino dinner is a whole THING.
 
-First of all, everyone eats at the same time. Like, everyone drops what they're doing and comes to the table. No one eats separately in their room or in front of the TV (I learned this when I tried to take my plate to watch TV with Maya and Tita Nene looked at me like I'd committed a crime).
+First of all, everyone eats at the same time. Like, everyone drops what they're doing and comes to the table. No one eats separately in their room or in front of the TV (I learned this when I tried to take my plate to watch TV with Jessa and Tita Nene looked at me like I'd committed a crime).
 
 Second, there's always rice. ALWAYS. Mum warned me about this. "Filipinos don't feel like they've eaten a meal if there's no rice." She was not exaggerating. There's a rice cooker the size of a small child and it's apparently on all day, producing fresh rice for every meal.
 
@@ -106,13 +106,13 @@ But it was nice.
 
 Can't sleep.
 
-Partly because Sofia is snoring. Partly because it's still really hot even with the AC on (the AC is ancient and sounds like a dying motorcycle). Partly because my brain won't turn off.
+Partly because Tilly is snoring. Partly because it's still really hot even with the AC on (the AC is ancient and sounds like a dying motorcycle). Partly because my brain won't turn off.
 
 Today was a lot.
 
 I keep thinking about what Lola said. About balikbayan versus discovering for the first time. Like there's a word for returning, but what's the word for arriving for the first time? For coming to a place that's supposed to be yours but doesn't feel like it yet?
 
-Maya lent me a book before bed. It's a Filipino young adult novel about a girl who can see ghosts. "It's really good," she said. "Filipino author. Let me know what you think."
+Jessa lent me a book before bed. It's a Filipino young adult novel about a girl who can see ghosts. "It's really good," she said. "Filipino author. Let me know what you think."
 
 I don't know if she was testing me or just being nice.
 

@@ -3,7 +3,7 @@
 
 Today's plan: visiting Intramuros.
 
-Maya explained it's the old walled city, from when the Spanish were here. Mum got very excited about showing us "real history" and Dad pulled out a guidebook he'd apparently been hiding, so I guess we're doing the tourist thing today.
+Jessa explained it's the old walled city, from when the Spanish were here. Mum got very excited about showing us "real history" and Dad pulled out a guidebook he'd apparently been hiding, so I guess we're doing the tourist thing today.
 
 But first: breakfast.
 
@@ -33,7 +33,7 @@ There's no AC. Just open sides and a lot of wind.
 
 Mum was grinning the whole time like this was the best thing ever. "I used to take these to school every day," she said.
 
-Sofia was terrified at first but by the end she was laughing and saying she wanted to ride them everywhere.
+Tilly was terrified at first but by the end she was laughing and saying she wanted to ride them everywhere.
 
 Dad held onto his bag like it was going to escape.
 
@@ -57,9 +57,9 @@ José Rizal, I learned today, is basically the Filipino national hero. He was a 
 
 In the museum there are these markers on the ground showing his last steps, from his cell to the execution site. We followed them. Mum was very quiet.
 
-"When I was your age," she said to me and Sofia, "we had to memorize his poems for school. His last poem is called 'Mi Último Adiós.' My Last Farewell. He wrote it the night before he died."
+"When I was your age," she said to me and Tilly, "we had to memorize his poems for school. His last poem is called 'Mi Último Adiós.' My Last Farewell. He wrote it the night before he died."
 
-"That's really sad," Sofia said.
+"That's really sad," Tilly said.
 
 "Yes. But it's also beautiful. He loved his country so much."
 
@@ -75,7 +75,7 @@ Or maybe it's not about the place. Maybe it's about the people.
 
 ### Dinner with Tito Manny and His Family, 8:00 PM
 
-Tonight Mum's oldest brother, Tito Manny, came for dinner with his wife and kids. He lives in a different part of the city (Makati, which is apparently the fancy business district) and he has a car (a BIG deal, according to Maya, who whispered this to me like it was gossip).
+Tonight Mum's oldest brother, Tito Manny, came for dinner with his wife and kids. He lives in a different part of the city (Makati, which is apparently the fancy business district) and he has a car (a BIG deal, according to Jessa, who whispered this to me like it was gossip).
 
 Tito Manny is... a lot.
 
@@ -85,7 +85,7 @@ He's loud. Like, REALLY loud. He laughed at everything, slapped people on the ba
 
 Dad smiled politely and said "I'm sure I'll manage" in his most British voice.
 
-Tito Manny's kids are older: college-aged, a boy and a girl. They were nice but mostly talked to JP about university stuff. They speak English with American accents, which was weird because they've never lived in America. Maya explained later that American English is what they learn in school, from movies, from everything.
+Tito Manny's kids are older: college-aged, a boy and a girl. They were nice but mostly talked to JP about university stuff. They speak English with American accents, which was weird because they've never lived in America. Jessa explained later that American English is what they learn in school, from movies, from everything.
 
 "You're the weird ones," she said. "With your British accents."
 
@@ -101,29 +101,29 @@ Mum said she was grateful to be home.
 
 Lola said she was grateful to have her children and grandchildren together.
 
-Sofia said she was grateful for halo-halo, which made everyone laugh.
+Tilly said she was grateful for halo-halo, which made everyone laugh.
 
 ---
 
 ### Before Bed, 11:00 PM
 
-Priya texted me a bunch of photos from her weekend. She went to some concert in Hyde Park with her older sister. Everyone looked very cool and London and I felt very far away.
+Roshni texted me a bunch of photos from her weekend. She went to some concert in Hyde Park with her older sister. Everyone looked very cool and London and I felt very far away.
 
-**Priya:** how's it going over there???
+**Roshni:** how's it going over there???
 **Me:** good actually. weird but good.
-**Priya:** eating lots of food?
+**Roshni:** eating lots of food?
 **Me:** SO much. they do not stop feeding you.
-**Priya:** haha I know the feeling. indian aunties are the same.
+**Roshni:** haha I know the feeling. indian aunties are the same.
 **Me:** it's different though
-**Priya:** how?
+**Roshni:** how?
 **Me:** idk. I'm actually THERE. where my mum is from. it's weird.
-**Priya:** good weird or bad weird?
+**Roshni:** good weird or bad weird?
 **Me:** ...good weird I think?
 
-I thought about telling her more. About Lola, and Maya, and the jeepneys, and José Rizal, and the way Mum seems different here.
+I thought about telling her more. About Lola, and Jessa, and the jeepneys, and José Rizal, and the way Mum seems different here.
 
 But I didn't know how to say it. It felt too big.
 
 **Me:** I'll tell you everything when I'm back
-**Priya:** deal. bring me something!
+**Roshni:** deal. bring me something!
 **Me:** obviously

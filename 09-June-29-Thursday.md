@@ -9,7 +9,7 @@ We're at the airport. Again. This time for Tokyo.
 
 Everyone came to see us off. The whole crowd. Lola, the titas and titos, ALL the cousins.
 
-Maya was quiet. She gave me a friendship bracelet she made. Purple and white, our favorite colors apparently.
+Jessa was quiet. She gave me a friendship bracelet she made. Purple and white, our favorite colors apparently.
 
 "Text me," she said.
 
@@ -21,7 +21,7 @@ Maya was quiet. She gave me a friendship bracelet she made. Purple and white, ou
 
 We hugged, which felt natural now, even though I'm not usually a hugger.
 
-Sofia cried. Full-on cried, hugging every cousin, declaring she never wanted to leave, causing a scene in the international departures area.
+Tilly cried. Full-on cried, hugging every cousin, declaring she never wanted to leave, causing a scene in the international departures area.
 
 Mum cried too, but quieter. Holding Lola's hands for a long time.
 
@@ -75,7 +75,7 @@ First thing I noticed: how quiet it is. The airport is calm, orderly, people wal
 
 Second thing I noticed: how COOL it is. Not temperature-cool (it's summer here too) but aesthetically cool. Everything is sleek and modern. There are robots. ROBOTS. Little service robots rolling around.
 
-Sofia is losing her mind.
+Tilly is losing her mind.
 
 Dad is in his element. He's been reading about Japanese architecture for months (his job is urban planning, which means he gets excited about buildings and public spaces, which is adorable but also nerdy). He keeps pointing at things and saying "Look at the design! Look at the wayfinding system!"
 
@@ -93,9 +93,9 @@ Our hotel is small.
 
 Like, REALLY small.
 
-Mum explained that space in Tokyo is expensive and rooms are just smaller here. Our "family room" is basically one medium room with two beds pushed together and Sofia and I are sharing and I can touch both walls if I stretch my arms out.
+Mum explained that space in Tokyo is expensive and rooms are just smaller here. Our "family room" is basically one medium room with two beds pushed together and Tilly and I are sharing and I can touch both walls if I stretch my arms out.
 
-But it's clean and modern and there's a toilet that does things I don't fully understand. Like, there are buttons. Many buttons. I pressed one by accident and water shot up in a way I was NOT expecting and Sofia laughed so hard she fell over.
+But it's clean and modern and there's a toilet that does things I don't fully understand. Like, there are buttons. Many buttons. I pressed one by accident and water shot up in a way I was NOT expecting and Tilly laughed so hard she fell over.
 
 We went out for dinner, just walking around the neighborhood.
 

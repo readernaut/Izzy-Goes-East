@@ -11,7 +11,7 @@ In London, if you wore something really out there, people would look. Maybe not 
 
 Here people were wearing literal costumes and nobody blinked.
 
-Sofia wanted to buy a rainbow tutu from one of the shops. Dad said no. She negotiated down to rainbow socks. This is called compromise, apparently.
+Tilly wanted to buy a rainbow tutu from one of the shops. Dad said no. She negotiated down to rainbow socks. This is called compromise, apparently.
 
 We also went to this place called Takeshita Street, which is narrow and packed with people and shops selling crepes and accessories and clothes.
 
@@ -23,9 +23,9 @@ I got a crepe with strawberries and whipped cream and chocolate and I ate it whi
 
 ### Ueno Park, 5:00 PM
 
-We walked through this huge park in the city center. There were temples, museums, a zoo (we didn't go in, Sofia was still upset about the tutu).
+We walked through this huge park in the city center. There were temples, museums, a zoo (we didn't go in, Tilly was still upset about the tutu).
 
-At one point I sat on a bench while Mum and Dad looked at some old temple thing and Sofia chased pigeons.
+At one point I sat on a bench while Mum and Dad looked at some old temple thing and Tilly chased pigeons.
 
 A girl sat on the other end of the bench. Maybe a little older than me, twelve or thirteen. She had a sketchbook and was drawing.
 
@@ -61,13 +61,13 @@ Maybe that's what travel is. Little moments that don't mean much but also mean e
 
 1. The chaos (in a good way)
 2. The warmth (temperature AND people)
-3. Maya
+3. Jessa
 4. Lola's cooking
 5. Jeepneys
 
 **Things I miss about London:**
 
-1. Priya
+1. Roshni
 2. My room
 3. Costa hot chocolate
 4. Understanding what people are saying

@@ -3,7 +3,7 @@
 
 WE LANDED.
 
-My legs feel like they belong to someone else. My eyes are doing that thing where they're open but not really working. Sofia somehow looks fresh and energetic, like she didn't just spend thirteen hours in a metal tube. Dad is muttering about how long the immigration queue is. Mum is GLOWING.
+My legs feel like they belong to someone else. My eyes are doing that thing where they're open but not really working. Tilly somehow looks fresh and energetic, like she didn't just spend thirteen hours in a metal tube. Dad is muttering about how long the immigration queue is. Mum is GLOWING.
 
 Seriously. She looks ten years younger. She keeps saying things in Tagalog under her breath and smiling at nothing.
 
@@ -63,7 +63,7 @@ Lola grabbed her and they stood there crying and talking in Tagalog so fast I co
 
 Dad stood behind me with the suitcases, looking a bit lost but happy. He's used to this, I think. He knows he's the outsider here and he's okay with it.
 
-Sofia ran in too. She's young enough that she can just hug strangers because they're family and it's not weird.
+Tilly ran in too. She's young enough that she can just hug strangers because they're family and it's not weird.
 
 And I just... stood there.
 
@@ -81,13 +81,13 @@ She laughed and hugged me anyway.
 
 She smells like cooking. Like garlic and something sweet I don't recognize.
 
-I'm writing this in the car (well, it's more like a van, they call it an "FX" apparently) and we're stuck in traffic on the way to Lola's house. Everyone is talking at once. Sofia is sitting on Tita Nene's lap even though she's too big for that. Mum is in the front seat talking to Tito Boy who's driving.
+I'm writing this in the car (well, it's more like a van, they call it an "FX" apparently) and we're stuck in traffic on the way to Lola's house. Everyone is talking at once. Tilly is sitting on Tita Nene's lap even though she's too big for that. Mum is in the front seat talking to Tito Boy who's driving.
 
-I'm in the back with two cousins who I think are called... JR? And... Maya?
+I'm in the back with two cousins who I think are called... JR? And... Jessa?
 
 They smiled at me when I sat down.
 
-"First time in Philippines?" the girl (Maya? I think?) asked.
+"First time in Philippines?" the girl (Jessa? I think?) asked.
 
 "Since I was four."
 
@@ -116,7 +116,7 @@ When Mum described it, I imagined something small. And okay, it's not big, not b
 What I DIDN'T expect was how many people would be IN the house.
 
 There's Lola.
-Tita Nene, who lives here with her husband Tito Jun and their three kids: JP (17), Maya (my age! 11!), and Marco (9).
+Tita Nene, who lives here with her husband Tito Jun and their three kids: JP (17), Jessa (my age! 11!), and Marco (9).
 Tita Gemma and Tito Boy, who have their own house but are here for our visit with their two kids: Gabby (14) and Kyle (8).
 Plus a helper (Mum said that's what they call housekeepers here) named Ate Rosalie who's been with Lola for years.
 
@@ -158,13 +158,13 @@ Very glamorous. Very "connect with your heritage."
 
 Fifth: the cousins.
 
-Maya is cool. I think. She's shy but she showed me around the house and explained where everything is and when I asked where the bathroom was she walked me there and showed me how to use the tabo (it's a dipper, for... you know what, I'm not writing that down, but basically it's complicated) and she didn't make fun of me for not knowing.
+Jessa is cool. I think. She's shy but she showed me around the house and explained where everything is and when I asked where the bathroom was she walked me there and showed me how to use the tabo (it's a dipper, for... you know what, I'm not writing that down, but basically it's complicated) and she didn't make fun of me for not knowing.
 
 JP is seventeen and mostly on his phone, which, fair.
 
 Marco and Kyle are playing some game in the corner and haven't really acknowledged our existence.
 
-Gabby is talking to Sofia and seems interested in her accent, keeps asking her to say things and then giggling.
+Gabby is talking to Tilly and seems interested in her accent, keeps asking her to say things and then giggling.
 
 I feel like everyone is being nice but also... watching me? To see what kind of cousin I am? If I'm going to be cool or weird or one of them or a foreigner?
 

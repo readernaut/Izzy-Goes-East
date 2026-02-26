@@ -36,8 +36,8 @@ We're taking a train to the city and Mum is texting Auntie Grace to coordinate.
 - They were roommates in university in San Francisco
 - Auntie Grace is Taiwanese-American
 - She moved back to Taipei a few years ago
-- She has a daughter who's a bit younger than me (nine, so between me and Sofia)
-- Her name is Lily
+- She has a daughter who's a bit younger than me (nine, so between me and Tilly)
+- Her name is Wendy
 - They live near this famous temple
 
 I'm nervous about meeting more new people but also excited.
@@ -68,7 +68,7 @@ Auntie Grace is cool. She's loud like Mum's Filipino relatives but in a differen
 
 They laughed and hugged for a long time.
 
-Lily is shy. She hung back while the adults talked, playing with her tablet. Sofia tried to make friends but Lily kept giving one-word answers.
+Wendy is shy. She hung back while the adults talked, playing with her tablet. Tilly tried to make friends but Wendy kept giving one-word answers.
 
 I get it. Sometimes new people are overwhelming.
 
@@ -76,9 +76,9 @@ I get it. Sometimes new people are overwhelming.
 
 ### Before Bed, 11:00 PM
 
-I'm sharing a room with Sofia and Lily. It's a sleepover situation.
+I'm sharing a room with Tilly and Wendy. It's a sleepover situation.
 
-Lily hasn't said much but when Sofia fell asleep, she turned to me and said:
+Wendy hasn't said much but when Tilly fell asleep, she turned to me and said:
 
 "Do you like anime?"
 

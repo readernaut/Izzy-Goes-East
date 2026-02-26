@@ -17,7 +17,7 @@ When we walked in, Lola was at the door. She grabbed me first (not Mum, ME) and 
 
 "Sometimes people say and don't do. You did."
 
-Maya was there too. She's taller, which is impossible because it's been like a week and a half, but I swear she's taller.
+Jessa was there too. She's taller, which is impossible because it's been like a week and a half, but I swear she's taller.
 
 "You're not taller," she said when I told her.
 
@@ -31,7 +31,7 @@ We caught up over dinner (rice, obviously, and kare-kare this time, which is thi
 
 I thought about it.
 
-"I don't know. Different parts of each place. In Japan, the gates at Fushimi Inari. In Taiwan, the night market. And here..." I looked around the table. Lola, the titas and titos, all the cousins, Mum and Dad and Sofia, Maya next to me. "Here, I think this. Just... this."
+"I don't know. Different parts of each place. In Japan, the gates at Fushimi Inari. In Taiwan, the night market. And here..." I looked around the table. Lola, the titas and titos, all the cousins, Mum and Dad and Tilly, Jessa next to me. "Here, I think this. Just... this."
 
 She nodded like she understood.
 
@@ -65,7 +65,7 @@ She looked at me. Really looked.
 
 "Yes."
 
-"Then you are Filipino. Your kind of Filipino. Different from mine, different from Maya's, different from your mother's. But yours."
+"Then you are Filipino. Your kind of Filipino. Different from mine, different from Jessa's, different from your mother's. But yours."
 
 I cried.
 

@@ -7,17 +7,17 @@ My room looks exactly the same. Same bed, same posters, same messy desk.
 
 But I feel like a different person looking at it.
 
-Priya is coming over later. She wants to hear EVERYTHING.
+Roshni is coming over later. She wants to hear EVERYTHING.
 
 I don't know where to start.
 
 The beginning, I guess. The purple journal Mum gave me. The anxiety at the airport. The thirteen hours of flying into the unknown.
 
-And then: Manila. Lola. Maya. Jeepneys and rice and too much food and comments about my weight and heat and chaos and love, so much love.
+And then: Manila. Lola. Jessa. Jeepneys and rice and too much food and comments about my weight and heat and chaos and love, so much love.
 
 And then: Tokyo. Quiet and efficient and beautiful. Red gates and robot toilets and ramen and the biggest city I've ever seen.
 
-And then: Taipei. Night markets and bubble tea and Lily and temples and Auntie Grace and another kind of belonging.
+And then: Taipei. Night markets and bubble tea and Wendy and temples and Auntie Grace and another kind of belonging.
 
 And then: home.
 

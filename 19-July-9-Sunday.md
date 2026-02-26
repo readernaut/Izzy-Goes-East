@@ -5,7 +5,7 @@ We spent the day just hanging out.
 
 Auntie Grace made us breakfast. We watched a Taiwanese movie on TV. We went to another night market (because why not).
 
-Sofia and Lily have become best friends somehow. They have inside jokes now that I don't understand.
+Tilly and Wendy have become best friends somehow. They have inside jokes now that I don't understand.
 
 At one point Mum and Auntie Grace were looking at old photos on Auntie Grace's laptop, laughing at pictures from university.
 

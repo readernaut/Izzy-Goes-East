@@ -23,13 +23,13 @@ There's this shrine that has thousands of red gates going up a mountain. Like, T
 
 The gates are called "torii" and they're donated by businesses and individuals and they have names written on them.
 
-It was hot and there were lots of stairs and at some point Sofia started complaining and Dad carried her on his back, which was impressive.
+It was hot and there were lots of stairs and at some point Tilly started complaining and Dad carried her on his back, which was impressive.
 
 But it was worth it.
 
 When you get to the top, you can see the whole city. And the walk through the gates is like... I don't know how to describe it. Like walking through a dream. Red and orange and light filtering through.
 
-Mum took a photo of me and Sofia standing in the middle of the gates. We look tiny. Like ants again.
+Mum took a photo of me and Tilly standing in the middle of the gates. We look tiny. Like ants again.
 
 I'm going to frame that photo, I think.
 

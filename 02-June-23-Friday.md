@@ -8,7 +8,7 @@ So here I am. Capturing.
 **Things I have captured so far:**
 
 - We have been at this gate for 47 minutes
-- Sofia has asked "when are we boarding" eleven times
+- Tilly has asked "when are we boarding" eleven times
 - Dad is doing his crossword and pretending not to hear
 - Mum is on her phone texting approximately every relative in the Philippines to confirm we are coming (they know, Mum, they definitely know)
 - There is a toddler three rows over who has been screaming since we sat down and honestly? Same, little guy. Same.
@@ -33,7 +33,7 @@ What if they expect me to know stuff and I just... don't?
 
 Okay. The toddler has stopped screaming. I think that's my cue to stop spiraling.
 
-Sofia just asked when we're boarding.
+Tilly just asked when we're boarding.
 
 Twelve.
 
@@ -41,21 +41,21 @@ Twelve.
 
 ### Same Gate, 3:58 PM
 
-Priya texted me.
+Roshni texted me.
 
-**Priya:** how's it going
+**Roshni:** how's it going
 **Me:** still at the gate. dying slowly.
-**Priya:** haha you'll be fine
-**Priya:** send me pics of everything ok??
+**Roshni:** haha you'll be fine
+**Roshni:** send me pics of everything ok??
 **Me:** will try to remember between the jet lag and the constant fear
-**Priya:** drama queen
-**Priya:** you're going to have the BEST time
-**Priya:** and eat the best food
-**Priya:** I'm so jealous
+**Roshni:** drama queen
+**Roshni:** you're going to have the BEST time
+**Roshni:** and eat the best food
+**Roshni:** I'm so jealous
 **Me:** you literally went to india last year
-**Priya:** that's different
+**Roshni:** that's different
 **Me:** how is that different
-**Priya:** idk it just is
+**Roshni:** idk it just is
 
 I don't think she meant anything by it. But it felt weird. Like going to India is normal, expected, a regular thing that British-Indian kids do, and going to the Philippines is... exotic? Special? Different?
 
@@ -70,7 +70,7 @@ I do that.
 Things I have learned in the first four hours of this flight:
 
 1. Airplane food is exactly as bad as everyone says
-2. Sofia can fall asleep anywhere, anytime, like a cat
+2. Tilly can fall asleep anywhere, anytime, like a cat
 3. Dad is already on his third film
 4. Mum keeps trying to talk to me about who we're going to see and I keep putting my headphones back in because I cannot handle the Briefing right now
 5. The seat in front of me is reclined so far back I can count the dandruff flakes on the headrest
@@ -119,7 +119,7 @@ The conversation usually goes like this:
 
 And then they look pleased with themselves, like they solved a puzzle.
 
-Sofia looks more like Mum than I do. She has Mum's darker hair and eyes, the more obvious features. People see her and think "Asian kid." People see me and think "...something?"
+Tilly looks more like Mum than I do. She has Mum's darker hair and eyes, the more obvious features. People see her and think "Asian kid." People see me and think "...something?"
 
 I don't know why this bothers me so much.
 

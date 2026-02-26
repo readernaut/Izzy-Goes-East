@@ -9,9 +9,9 @@ When we got there I understood why.
 
 The water is INSANE. This clear, bright turquoise that doesn't look real. White sand. Fish you can see swimming around your feet.
 
-Sofia screamed and ran straight in. Dad looked at the sun like it was personally attacking him and put on approximately seven layers of sunscreen.
+Tilly screamed and ran straight in. Dad looked at the sun like it was personally attacking him and put on approximately seven layers of sunscreen.
 
-Maya and I waded in together. The water was warm, like bathwater, and clear all the way down.
+Jessa and I waded in together. The water was warm, like bathwater, and clear all the way down.
 
 "It's so different from Brighton," I said.
 
@@ -23,7 +23,7 @@ Maya and I waded in together. The water was warm, like bathwater, and clear all 
 
 "Not dirty brown. Just... brown. Cold too. You don't really swim, you just sort of endure it."
 
-Maya shook her head. "Tita Mari married a man from a country with brown water."
+Jessa shook her head. "Tita Mari married a man from a country with brown water."
 
 "He had other qualities."
 

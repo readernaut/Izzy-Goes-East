@@ -1,11 +1,11 @@
 ## July 8th, Saturday
-### Taipei, Exploring with Lily
+### Taipei, Exploring with Wendy
 
-Lily and I went to the bookstore together today. Just the two of us. (Well, Auntie Grace was nearby doing errands but she let us wander.)
+Wendy and I went to the bookstore together today. Just the two of us. (Well, Auntie Grace was nearby doing errands but she let us wander.)
 
 Taiwanese bookstores are AMAZING. Multiple floors. Manga sections bigger than anything in London. Art supplies. Stationery.
 
-Lily bought a manga. I bought a sketchbook (even though I don't really draw, but maybe I'll start?).
+Wendy bought a manga. I bought a sketchbook (even though I don't really draw, but maybe I'll start?).
 
 We sat at a cafe in the bookstore and talked.
 
@@ -23,7 +23,7 @@ She smiled. "You're in between too?"
 
 "British-Filipino. But I don't speak Tagalog. I've only been to the Philippines once, before this trip. And now I'm here, in Taiwan, which I have no connection to at all, and somehow I feel... connected anyway?"
 
-"Maybe connection isn't about blood," Lily said. "Maybe it's about paying attention."
+"Maybe connection isn't about blood," Wendy said. "Maybe it's about paying attention."
 
 That's the wisest thing a nine-year-old has ever said to me.
 

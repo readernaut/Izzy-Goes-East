@@ -4,7 +4,7 @@
 **Today's itinerary (according to Dad, who made a spreadsheet):**
 
 Morning: Senso-ji Temple in Asakusa
-Afternoon: Akihabara (for Sofia, who is obsessed with Japanese stationery)
+Afternoon: Akihabara (for Tilly, who is obsessed with Japanese stationery)
 Evening: Shibuya Crossing, because apparently it's famous
 
 **What Actually Happened:**
@@ -21,7 +21,7 @@ You're supposed to tie bad fortunes to a special rack at the temple so the bad l
 
 Mum tied hers very carefully.
 
-Akihabara was INSANE. Buildings and buildings of electronics, anime stuff, games, and yes, stationery. Sofia went feral in the stationery store. She bought approximately fourteen different pens, erasers shaped like food, sticky notes with cats on them, and a notebook with a very serious-looking cartoon rabbit on the cover.
+Akihabara was INSANE. Buildings and buildings of electronics, anime stuff, games, and yes, stationery. Tilly went feral in the stationery store. She bought approximately fourteen different pens, erasers shaped like food, sticky notes with cats on them, and a notebook with a very serious-looking cartoon rabbit on the cover.
 
 I bought a pen that has a little cat on the end that bobbles when you write.
 
@@ -29,7 +29,7 @@ No regrets.
 
 Shibuya Crossing at night is like nothing I've ever seen. You stand on the corner with hundreds of other people and then ALL the lights turn red and EVERYONE crosses at once, like a human flood, going in every direction.
 
-Sofia held my hand, which she hasn't done in a while. I think she was scared but didn't want to admit it.
+Tilly held my hand, which she hasn't done in a while. I think she was scared but didn't want to admit it.
 
 I was a little scared too.
 
@@ -39,26 +39,26 @@ But also exhilarated.
 
 ### Hotel, 11:00 PM
 
-I texted Maya pictures all day.
+I texted Jessa pictures all day.
 
-**Maya:** OMG THE RAMEN
-**Maya:** I'm so jealous
+**Jessa:** OMG THE RAMEN
+**Jessa:** I'm so jealous
 **Me:** it was SO good
-**Maya:** Japan is on my list
+**Jessa:** Japan is on my list
 **Me:** your list?
-**Maya:** places to go. I have a list.
+**Jessa:** places to go. I have a list.
 **Me:** where else is on the list?
-**Maya:** Korea, London (obviously), New York, Australia, everywhere
+**Jessa:** Korea, London (obviously), New York, Australia, everywhere
 **Me:** that's a lot of places
-**Maya:** I have time. I'm eleven.
+**Jessa:** I have time. I'm eleven.
 
 I told her about Shibuya Crossing and the fortune and the robot toilet.
 
-**Maya:** the toilets there are FAMOUS
-**Maya:** they have bidets and heated seats and music
+**Jessa:** the toilets there are FAMOUS
+**Jessa:** they have bidets and heated seats and music
 **Me:** MUSIC???
-**Maya:** some of them play music so no one can hear you pee
+**Jessa:** some of them play music so no one can hear you pee
 **Me:** that's either genius or insane
-**Maya:** both probably. Japan is like that.
+**Jessa:** both probably. Japan is like that.
 
 She's right. Japan is like that. Genius AND insane. Everything here is carefully thought out and slightly surreal.

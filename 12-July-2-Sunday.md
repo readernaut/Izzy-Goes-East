@@ -27,9 +27,9 @@ Dad is in architecture heaven. We went to this neighborhood with a famous modern
 
 I don't know what cantilevers are but he's happy.
 
-Mum and Sofia and I found a cafe and we're eating matcha cake (GREEN CAKE) and waiting for him to finish his architectural appreciation.
+Mum and Tilly and I found a cafe and we're eating matcha cake (GREEN CAKE) and waiting for him to finish his architectural appreciation.
 
-Sofia is drawing in her new notebook. She's drawing a cat wearing a kimono, which she saw in a shop somewhere.
+Tilly is drawing in her new notebook. She's drawing a cat wearing a kimono, which she saw in a shop somewhere.
 
 Mum is on her phone, texting Lola updates.
 

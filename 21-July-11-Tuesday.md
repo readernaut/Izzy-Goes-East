@@ -15,7 +15,7 @@ I know what sinigang tastes like.
 I know how to say mahal kita.
 I know what it feels like to walk through a thousand red gates.
 I know what the night market smells like.
-I know I have a cousin named Maya who likes ghost stories.
+I know I have a cousin named Jessa who likes ghost stories.
 I know I have a grandmother who stayed up late to talk to me.
 I know I belong to more places than I realized.
 
@@ -29,7 +29,7 @@ Just to show me what's there. What I'm part of. What's been waiting for me all a
 
 ### Hour 6 of 13
 
-Sofia is asleep again. Girl could sleep through anything.
+Tilly is asleep again. Girl could sleep through anything.
 
 Dad is on his fourth movie. He's worked through most of the action section.
 
@@ -63,9 +63,9 @@ I can't believe it's almost over.
 
 But also, it's not over. Not really.
 
-I'm going to text Maya when we land. Keep up the Tagalog lessons. Watch that Filipino ghost show she told me about. Maybe convince Mum to send balikbayan boxes and add my own stuff in them.
+I'm going to text Jessa when we land. Keep up the Tagalog lessons. Watch that Filipino ghost show she told me about. Maybe convince Mum to send balikbayan boxes and add my own stuff in them.
 
-I'm going to tell Priya everything. Show her the photos. Make her try Filipino food (there's a place in Earl's Court, apparently).
+I'm going to tell Roshni everything. Show her the photos. Make her try Filipino food (there's a place in Earl's Court, apparently).
 
 I'm going to practice saying "Filipina" like it's something I'm allowed to say.
 

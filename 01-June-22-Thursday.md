@@ -42,7 +42,7 @@ Total trip time: Three weeks.
 
 THREE WEEKS of being in places where I don't speak the language, don't know anyone, and will definitely do something embarrassing that will haunt me forever.
 
-Sofia is excited. She's eight. She's excited about everything. She made a poster about the Philippines for her class and now she thinks she's an expert. Yesterday she told me that Manila is "one of the most densely populated cities in the world" like she discovered it herself.
+Tilly is excited. She's eight. She's excited about everything. She made a poster about the Philippines for her class and now she thinks she's an expert. Yesterday she told me that Manila is "one of the most densely populated cities in the world" like she discovered it herself.
 
 I know I should be excited too. Mum has been planning this trip for AGES. She's been filling balikbayan boxes for months, these massive cardboard boxes that are apparently a whole Filipino thing, stuffed with presents for everyone. Chocolates from M&S. Cadbury. Boots vitamins. A raincoat for Lola because "English raincoats are just better quality, anak."
 
@@ -64,7 +64,7 @@ Mum's stories? They're HER stories, not mine.
 
 I ended up talking about lumpia, which are these Filipino spring rolls that Mum makes for special occasions. And it was fine. Everyone said "oh cool" and moved on.
 
-But Priya, who's my best friend and also British-Indian, talked for like five minutes about Diwali and showed photos of her last trip to Delhi and did a demo of a dance move she learned from her grandmother.
+But Roshni, who's my best friend and also British-Indian, talked for like five minutes about Diwali and showed photos of her last trip to Delhi and did a demo of a dance move she learned from her grandmother.
 
 And I sat there thinking: she has a WHOLE THING. A thing she can do, a thing she knows, a thing that's hers.
 
