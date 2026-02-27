@@ -17,7 +17,7 @@ Thirteen hours to Manila.
 
 THIRTEEN HOURS.
 
-I did the maths and that's like watching the entire Lord of the Rings trilogy twice. Including the boring bits.
+Tilly says it's like a sleepover in the sky. I say it's thirteen hours of not being able to run away from my own thoughts.
 
 Mum keeps saying I'm going to love it, that I'll finally get to really meet everyone, that it'll be "so good for the girls to connect with their heritage."
 
@@ -44,10 +44,10 @@ Twelve.
 Roshni texted me.
 
 **Roshni:** how's it going
-**Me:** still at the gate. dying slowly.
+**Me:** still at the gate. trying not to spiral.
 **Roshni:** haha you'll be fine
 **Roshni:** send me pics of everything ok??
-**Me:** will try to remember between the jet lag and the constant fear
+**Me:** will try to remember between the jet lag and meeting approximately 400 relatives
 **Roshni:** drama queen
 **Roshni:** you're going to have the BEST time
 **Roshni:** and eat the best food
@@ -69,11 +69,11 @@ I do that.
 
 Things I have learned in the first four hours of this flight:
 
-1. Airplane food is exactly as bad as everyone says
+1. The little screen map is weirdly addictive. We're over Romania right now. ROMANIA.
 2. Tilly can fall asleep anywhere, anytime, like a cat
 3. Dad is already on his third film
 4. Mum keeps trying to talk to me about who we're going to see and I keep putting my headphones back in because I cannot handle the Briefing right now
-5. The seat in front of me is reclined so far back I can count the dandruff flakes on the headrest
+5. It's dark outside and if I press my face against the window I can see city lights far below, which is actually beautiful, not that I'd tell anyone that right now
 
 I tried watching a movie but I couldn't concentrate. I kept thinking about what's going to happen when we land.
 
@@ -91,9 +91,9 @@ Mum has told me more, obviously. She's told me about the house, about the neighb
 
 I'm going to try to sleep now.
 
-Nine more hours.
+Nine more hours until we land. Nine more hours until I meet everyone and find out if I'm the cousin they were hoping for or a disappointment.
 
-Nine.
+That's what's keeping me awake. Not the flight. The landing.
 
 ---
 
@@ -135,4 +135,4 @@ Ugh.
 
 Going to try to sleep again.
 
-Eight more hours.
+Eight more hours until I find out.

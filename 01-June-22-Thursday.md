@@ -31,7 +31,7 @@ Anyway. She left and now I'm writing in the journal, so I guess it worked.
 
 **The Plan (as explained to me approximately 47 times):**
 
-1. Fly to Manila (13 HOURS, kill me now)
+1. Fly to Manila (13 hours, nowhere to hide)
 2. Stay with Lola and various aunts and uncles and cousins I've either never met or met when I was four and don't remember
 3. Fly to Tokyo (because Dad has always wanted to go and Mum agreed to add it on)
 4. Fly to Taipei (because Mum's uni friend Auntie Grace lives there now and "the girls HAVE to see Taiwan")
